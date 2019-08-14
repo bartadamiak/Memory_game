@@ -1,1 +1,1 @@
-http://bit.do/memory_gamee
+http://hosting1907205.online.pro/memory
